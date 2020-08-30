@@ -1,5 +1,6 @@
 # tafsir ahlam app
 A vision is what a person sees in his sleep, and the vision is not narrated to anyone other than a scholar or advisor, for he said what Al-Tirmidhi narrated from the hadith of Abu Hurairah - may God be pleased with him - the saying of the Prophet - may God bless him and grant him peace -: ((The vision is only told by a scholar or advisor) ); recited by Al-Termethy, and corrected by Al-Albani; Because the vision is on the foot of a bird unless it is expressed, and if it is expressed it falls.
+Interpretation of dreams and visions from the Qur’an and Sunnah and the interpretation of scholars by Ibn Sirin, Ibn Shaheen and Nabulsi, as well as Imam al-Sadiq, free of charge via [tafseer-ahlam.com](https://tafseer-ahlam.com), where topics of interpretation and comments were reviewed by specialists.
 
 
 And it is not narrated by those who saw it against those who do not understand well, because Malik, may God have mercy on him, said:
